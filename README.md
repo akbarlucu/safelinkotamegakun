@@ -1,0 +1,2 @@
+# safelinkotamegakun
+Safelink
